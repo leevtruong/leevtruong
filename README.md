@@ -1,4 +1,4 @@
-### Hi, I'm Le Van Truong... Uhm... I'm Truong :>
+### Hi, My name's Le Van Truong... Uhm... I'm Truong :>
 
 # 💫About Me :
 🌱 Xin chào mọi người 🌱
