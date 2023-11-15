@@ -2,7 +2,7 @@
 
 # 💫About Me :
 🌱 Xin chào mọi người 🌱
-- Em tên là: Lê Văn Trường. Và mọi hãy gọi em là: Trường :>
+- Em tên là: Lê Văn Trường. Và mọi người hãy gọi em là: Trường :>
 - Hết ><
 
 ## 🌐Socials
