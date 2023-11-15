@@ -1,10 +1,5 @@
 ### Hi, I'm Le Van Truong... Uhm... I'm Truong :>
 
-<!--
-**leevtruong/leevtruong** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
 # 💫About Me :
 🌱 Xin chào mọi người 🌱
 - Em tên là: Lê Văn Trường
